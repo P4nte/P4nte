@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil P4nte :3
+## Bem-vindo(a) ao perfil P4nte :)
 
  <div>
    <a href="https://github.com/P4nte">
